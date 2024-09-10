@@ -4,7 +4,7 @@ enjoy the redesign <3
 
 PREVIEW: 
 
-https://streamable.com/p7n4s6
+[https://streamable.com/p7n4s6](https://streamable.com/wpkwec)
 
 IMG:
 
