@@ -2,6 +2,9 @@ Go to ox_inventory/web/ and replace build :)
 
 enjoy the redesign <3
 
+our discord:
+https://discord.gg/bYbeXZtTa9
+
 PREVIEW: 
 
 [https://streamable.com/p7n4s6](https://streamable.com/wpkwec)
