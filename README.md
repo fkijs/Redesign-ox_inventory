@@ -16,6 +16,7 @@ https://ibb.co/4Fn7Wh5
 ![image](https://github.com/user-attachments/assets/1c74e13f-9d3e-4f00-ab4c-fed48e214a69)
 
 
+No support is given, since it is open and can be developed.
 
 
 
